@@ -1,0 +1,2 @@
+- 👀 oi,eu sou emanuel.conrado@escola.pr.gov.br 
+-🗿estou interessado em fazer faculdade de programação
